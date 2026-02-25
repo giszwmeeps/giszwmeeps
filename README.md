@@ -1,5 +1,5 @@
 # [♪⃞　](<https://./>)　𓈒　　˚　　[_GIS / MEEP !_](<https://./>)　　❜　　go for the ultimate  !
-　　　　　any pronouns / she/her mainly       |       minor      | im up for any challenges! hit me up !　𑁯♡ 　
+　　　　　any pronouns / she/her mainly       |       minor      | f2i,ping,dm,c+h !　𑁯♡ 　
 > | >        straight asexual      𓎐    im mainly on [ponytown](<https://./>) and [roblox](<https://./>)　𓎐　a [person](<https://./>)
 ##  　　　          [　 ֺ 𓈒](<https://./>)　　︶　　˚‧　　[_☎️_](<https://./>)　　[₊](<https://./>)
 > ⠀⠀⠀                 ⠀𓈒⠀⠀ ⠀⁺⠀⠀ ⠀**socials !** ⠀  ⠀⠀𓂃  ᝰ.ᐟ ◞
