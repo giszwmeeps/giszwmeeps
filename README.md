@@ -1,3 +1,16 @@
+###  >            𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
+
+KNOWN =      YEOSIN, MEEP
+- NICKNAME =   YEO, GIS, MEEP
+
+> - gender                   :    non-binary
+> - age rating               :    13+
+> - date of birth            :    25/05
+> - height                   :    idk LOL
+> - sexuality                :    lithromantic , asexual
+> - pronouns                 :    any pronouns, rarely use it/its
+
+###   >           𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
 <!--
 **giszwmeeps/giszwmeeps** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
