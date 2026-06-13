@@ -6,7 +6,6 @@ KNOWN =      YEOSIN, MEEP
 > - gender                   :    non-binary
 > - age rating               :    13+
 > - date of birth            :    25/05
-> - height                   :    idk LOL
 > - sexuality                :    lithromantic , asexual
 > - pronouns                 :    any pronouns, rarely use it/its
 
