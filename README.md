@@ -1,27 +1,19 @@
-###  >            𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
+haiyo ^_^ 
+check out my tt
+uhh im known as Yeosin, Yeo, Meep, or gis
+you can call me gis or yeo
+meep is my sona's name
+yea,,
+oh my discord is also meepstaracc.io
 
-KNOWN =      YEOSIN, MEEP
-- NICKNAME =   YEO, GIS, MEEP
+yea.. ok bayayaye
 
-> - gender                   :    non-binary
-> - age rating               :    13+
-> - date of birth            :    25/05
-> - sexuality                :    lithromantic , asexual
-> - pronouns                 :    any pronouns, rarely use it/its
+---
 
-###   >           𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
+c+h on ponytown
 
-<!--
-**giszwmeeps/giszwmeeps** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oeikastuxuududf7dmxtptptte&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oeikastuxuududf7dmxtptptte&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
