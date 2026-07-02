@@ -1,16 +1,16 @@
 haiyo ^_^  
-check out my tt
-uhh im known as Yeosin, Yeo, Meep, or gis
-you can call me gis or yeo
-meep is my sona's name
-yea,,
-oh my discord is also meepstaracc.io
-
-yea.. ok bayayaye
+check out my tt  
+uhh im known as Yeosin, Yeo, Meep, or gis  
+you can call me gis or yeo  
+meep is my sona's name  
+yea,,  
+oh my discord is also meepstaracc.io  
+  
+yea.. ok bayayaye  
 
 ---
 
-c+h on ponytown
+c+h on ponytown  
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oeikastuxuududf7dmxtptptte&redirect=true">
