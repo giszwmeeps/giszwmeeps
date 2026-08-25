@@ -17,6 +17,10 @@ yea.. ok bayayaye
 
 ---
 
+friends im usually with in pt : @sunstardiamond , @
+
+---
+
 c+h always on ponytown  
 
 <p align="center">
