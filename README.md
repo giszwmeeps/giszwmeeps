@@ -17,7 +17,7 @@ yea.. ok bayayaye
 
 ---
 
-friends im usually with in pt : @sunstardiamond , @
+friends im usually with in pt : @sunstardiamond , @patchworkpaws
 
 ---
 
