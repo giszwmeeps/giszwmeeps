@@ -33,3 +33,11 @@ c+h always on ponytown
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Poppins&weight=600&size=30&pause=1100&color=F4C325&center=true&vCenter=true&repeat=true&width=900&lines=hallow!;this+is+my+profile;i+just+did+this+part+for+fun+LOL"/>
 </p>
+
+---
+
+servers that own my heart
+
+regis : OME , plushkinz , SSC
+
+🤍 Miracle School District 🤍
