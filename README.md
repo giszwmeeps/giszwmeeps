@@ -17,11 +17,14 @@ yea.. ok bayayaye
 
 ---
 
-friends im usually with in pt : @sunstardiamond , @patchworkpaws
+friends im usually with in pt : [@sunstardiamond](https://github.com/SunstarDiamond) , [@patchworkpaws](https://github.com/patchworkpaws)
+
+special mentions : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https://github.com/ld3Ipanicc)
+
 
 ---
 
-c+h always on ponytown  
+c+h always encouraged in ponytown unless dni is mentioned
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oeikastuxuududf7dmxtptptte&redirect=true">
@@ -38,6 +41,6 @@ c+h always on ponytown
 
 servers that own my heart
 
-regis : OME , plushkinz , SSC
+regis : OME , plushkinz , SSC , bdd , pon 
 
-🤍 Miracle School District 🤍
+Miracle School District
