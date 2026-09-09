@@ -19,8 +19,9 @@ yea.. ok bayayaye
 
 friends im usually with in pt : [@sunstardiamond](https://github.com/SunstarDiamond) , [@patchworkpaws](https://github.com/patchworkpaws)
 
-special mentions : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https://github.com/ld3Ipanicc)
+special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https://github.com/ld3Ipanicc)
 
+[angel](https://github.com/angel0fsloth) and [nick](https://github.com/muttk1n)
 
 ---
 
