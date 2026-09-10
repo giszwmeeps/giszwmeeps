@@ -26,7 +26,16 @@ friends im usually with in pt : [@sunstardiamond](https://github.com/SunstarDiam
 
 special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https://github.com/ld3Ipanicc)
 
-[angel](https://github.com/angel0fsloth) and [nick](https://github.com/muttk1n)
+[angel](https://github.com/angel0fsloth) and [nick](https://github.com/muttk1n)  
+
+---
+  
+REGIMENT/SCOUT/SPECIES ( Pony Town )
+
+**OME** ( Object of My Eye ) - forever my favorite and no1 choice  
+**PLSH** ( PlushKinz ) - first time staff, owns my heart  
+**BDD** ( Bunny's Dream Deception ) - LOVELY community, i love every part of it  
+HM: SSC ( Sweet Sugary Candies ), DSS ( Deep Sea Seals )  
 
 ---
 
@@ -38,15 +47,4 @@ c+h always encouraged in ponytown unless dni is mentioned
   </a>
 </p>
 
-
-<p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Poppins&weight=600&size=30&pause=1100&color=F4C325&center=true&vCenter=true&repeat=true&width=900&lines=hallow!;this+is+my+profile;i+just+did+this+part+for+fun+LOL"/>
-</p>
-
 ---
-
-servers that own my heart
-
-regis : OME , plushkinz , SSC , bdd , pon 
-
-Miracle School District
