@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Merriweather&weight=300&size=16&pause=8000&color=F4C325&center=true&vCenter=true&repeat=true&hide_cursor=true&width=900&lines=Let+your+days+be+beautiful+always!"/>
+  <img src="https://readme-typing-svg.demolab.com?font=Merriweather&weight=300&size=16&pause=8000&color=F4C325&center=true&vCenter=true&repeat=true&hide_cursor=true&width=900&lines=Shimmering+and+shining!"/>
 </p>
 
 ---
