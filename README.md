@@ -11,7 +11,7 @@
 
   
 haiyo ^_^  
-check out my tt  
+check out my tt and pronouns page  
 uhh im known as Yeosin, Yeo, Meep, or gis  
 you can call me gis or yeo  
 meep is my sona's name  
