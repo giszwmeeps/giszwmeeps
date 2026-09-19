@@ -21,6 +21,7 @@ oh my discord is also meepstaracc.io
 yea.. ok bayayaye  
 
 ---
+[yeosin](https://github.com/yourpulchritude)
 
 friends im usually with in pt : [@sunstardiamond](https://github.com/SunstarDiamond) , [@patchworkpaws](https://github.com/patchworkpaws)
 
