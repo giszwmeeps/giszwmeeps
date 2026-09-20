@@ -34,7 +34,7 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
 REGIMENT/SCOUT/SPECIES ( Pony Town )
 
 **OME** ( Object of My Eye ) - forever my favorite and no1 choice  
-**PON** ( Gachapon ) - head managing, im doing my best! 
+**PON** ( Gachapon ) - head managing, im doing my best!  
 **PLSH** ( PlushKinz ) - first time staff, owns my heart  
 **BDD** ( Bunny's Dream Deception ) - LOVELY community, i love every part of it  
 HM: SSC ( Sweet Sugary Candies ), DSS ( Deep Sea Seals )  
