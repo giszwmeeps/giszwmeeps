@@ -21,7 +21,7 @@ oh my discord is also meepstaracc.io
 yea.. ok bayayaye  
 
 ---
-[yeosin](https://github.com/yourpulchritude) my no 1 oc
+[yeosin](https://github.com/yourpulchritude) my no 1 
 
 friends im usually with in pt : [@sunstardiamond](https://github.com/SunstarDiamond) , [@patchworkpaws](https://github.com/patchworkpaws)
 
