@@ -39,6 +39,25 @@ REGIMENT/SCOUT/SPECIES ( Pony Town )
 **BDD** ( Bunny's Dream Deception ) - LOVELY community, i love every part of it  
 HM: SSC ( Sweet Sugary Candies ), DSS ( Deep Sea Seals )  
 
+<details>
+  <summary>▶ PONY TOWN <img src="URL_TO_YOUR_EMOJI" width="20" height="20" alt="emoji"></summary>
+  <!-- Content for Pony Town goes here -->
+</details>
+
+<details>
+  <summary>▶ BYI/BYF <img src="URL_TO_YOUR_EMOJI" width="20" height="20" alt="emoji"></summary>
+  <!-- Content for BYI/BYF goes here -->
+</details>
+
+<details open>
+  <summary>▼ DNI <img src="URL_TO_YOUR_EMOJI" width="20" height="20" alt="emoji"></summary>
+  
+  <p><a href="URL_TO_YOUR_CRITERIA">Basic DNI Criteria.</a></p>
+  <p>Pro/Darkshippers.</p>
+  <p>LLcest shippers or tolerators.</p>
+</details>
+
+
 ---
 
 c+h always encouraged in ponytown unless dni is mentioned
