@@ -17,45 +17,67 @@ you can call me gis or yeo
 meep is my sona's name  
 yea,,  
 oh my discord is also meepstaracc.io  
+wip github  
   
 yea.. ok bayayaye  
 
 ---
+
+<div align="center">
+  <details open>
+    <summary>⠀ friends </summary>
+    <p>
+
 [yeosin](https://github.com/yourpulchritude) my no 1 
 
-friends im usually with in pt : [@sunstardiamond](https://github.com/SunstarDiamond) , [@patchworkpaws](https://github.com/patchworkpaws)
+[@sunstardiamond](https://github.com/SunstarDiamond) coe my goat!
 
 special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https://github.com/ld3Ipanicc)
 
 [angel](https://github.com/angel0fsloth) and [nick](https://github.com/muttk1n)  
 
+[skyyeeee](https://github.com/witherhalo) explodes
+    <p>⠀<p>
+    
+  </details>
+</div>
+
 ---
-  
-REGIMENT/SCOUT/SPECIES ( Pony Town )
 
-**OME** ( Object of My Eye ) - forever my favorite and no1 choice, you will be forever missed. I love you OME  
-**PON** ( Gachapon ) - head managing, im doing my best!  
-**PLSH** ( PlushKinz ) - first time staff, owns my heart  
-**BDD** ( Bunny's Dream Deception ) - LOVELY community, i love every part of it  
-HM: SSC ( Sweet Sugary Candies ), DSS ( Deep Sea Seals )  
+<div align="center">
+  <details open>
+    <summary>⠀ ponytown & regi </summary>
+    <p>
+<h2>︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
+      <p>⠀<p>
+<p><samp>usually in yeosin skin or afk/offtab</samp></p>  
+    
+<p><samp>i often cuddle everyone i see open for c+h</samp></p>
+<p>
+    <p>⠀<p>
+<div align="center">
+<h2>︵︵︵︵︵︵︵︵︵︵︵︵</h2>
+      <p>⠀<p>
+  <p><samp>OME object of my eye</samp></p>
+</div>
+  <p><samp>PON gachapon</samp></p>
+  <p><samp>PLSH plushkinz</samp></p>
+  <p><samp>BDD bunny's dream deception</samp></p>
+   <p><samp>HM : SSC DSS TWINKLES AG-NS</samp></p>
+   <p>⠀<p>
+</div>
+ <p><samp>
+︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵</samp></p>
 
-<details>
-  <summary>▶ PONY TOWN <img src="URL_TO_YOUR_EMOJI" width="20" height="20" alt="emoji"></summary>
-  <!-- Content for Pony Town goes here -->
-</details>
 
-<details>
-  <summary>▶ BYI/BYF <img src="URL_TO_YOUR_EMOJI" width="20" height="20" alt="emoji"></summary>
-  <!-- Content for BYI/BYF goes here -->
-</details>
+<div align="center">
+  <details open>
+    <summary>⠀ dni </summary>
+-
+    
+  </details>
+</div>
 
-<details open>
-  <summary>▼ DNI <img src="URL_TO_YOUR_EMOJI" width="20" height="20" alt="emoji"></summary>
-  
-  <p><a href="URL_TO_YOUR_CRITERIA">Basic DNI Criteria.</a></p>
-  <p>Pro/Darkshippers.</p>
-  <p>LLcest shippers or tolerators.</p>
-</details>
 
 
 ---
