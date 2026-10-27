@@ -24,7 +24,7 @@ yea.. ok bayayaye
 ---
 
 <div align="center">
-  <details open>
+  <details close>
     <summary>⠀ friends </summary>
     <p>
 
@@ -45,7 +45,7 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
 ---
 
 <div align="center">
-  <details open>
+  <details close>
     <summary>⠀ ponytown & regi </summary>
     <p>
 <h2>︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
@@ -73,7 +73,7 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
 
 
 <div align="center">
-  <details open>
+  <details close>
     <summary>⠀ dni </summary>
 -
     
