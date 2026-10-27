@@ -3,7 +3,6 @@
   <img src="https://readme-typing-svg.demolab.com?font=Merriweather&weight=300&size=16&pause=8000&color=F4C325&center=true&vCenter=true&repeat=true&hide_cursor=true&width=900&lines=Shimmering+and+shining!"/>
 </p>
 
----
 
 <p align="center">
 <img width="320" height="50" alt="image" src="https://github.com/user-attachments/assets/db1b7470-bf06-4a21-9aa5-4222a59f88e6" />
@@ -21,7 +20,6 @@ wip github
   
 yea.. ok bayayaye  
 
----
 
 <div align="center">
   <details close>
@@ -42,7 +40,6 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
   </details>
 </div>
 
----
 
 <div align="center">
   <details close>
