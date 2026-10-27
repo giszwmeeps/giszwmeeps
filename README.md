@@ -10,7 +10,7 @@
 
 
 <p align="center">
-</p> [ata](https://gatewaytoenergy.atabook.org/) </p>
+[ata](https://gatewaytoenergy.atabook.org)
 
   
 haiyo ^_^    
