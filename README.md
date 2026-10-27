@@ -60,6 +60,7 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
       <p>⠀<p>
   <p><samp>OME object of my eye</samp></p>
 </div>
+  <p><samp>PAW paws across the world</samp></p>
   <p><samp>PON gachapon</samp></p>
   <p><samp>PLSH plushkinz</samp></p>
   <p><samp>BDD bunny's dream deception</samp></p>
