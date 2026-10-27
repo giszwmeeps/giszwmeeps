@@ -9,9 +9,8 @@
 </p>
 
   
-haiyo ^_^  
-check out my tt and pronouns page  
-uhh im known as Yeosin, Yeo, Meep, or gis  
+haiyo ^_^    
+mainly known as Yeosin or gis;meep in regis&internet 
 you can call me gis or yeo  
 meep is my sona's name  
 yea,,  
