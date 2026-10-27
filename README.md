@@ -8,7 +8,7 @@
 <img width="320" height="50" alt="image" src="https://github.com/user-attachments/assets/db1b7470-bf06-4a21-9aa5-4222a59f88e6" />
 </p>
 
-<p align="center">
+<div align="center">
 
 [atabook](https://gatewaytoenergy.atabook.org/?page=1)
 
