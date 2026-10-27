@@ -10,7 +10,7 @@
 
 <div align="center">
 
-[atabook](https://gatewaytoenergy.atabook.org/?page=1)
+(っᵔ◡ᵔ)っ [ata](https://gatewaytoenergy.atabook.org/?page=1) + [prns.cc](https://pronouns.cc/@meepstaracc.io)
 </div>
 
   
