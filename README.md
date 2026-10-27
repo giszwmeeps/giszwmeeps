@@ -52,7 +52,7 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
 <p><samp>i often cuddle everyone i see open for c+h</samp></p>
 <p>
     <p>⠀<p>
-<div align="center">
+<div align=>
 <h2>︵︵︵︵︵︵︵︵︵︵︵︵</h2>
       <p>⠀<p>
   <p><samp>OME object of my eye</samp></p>
@@ -64,9 +64,6 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
    <p><samp>HM : SSC DSS TWINKLES AG-NS</samp></p>
    <p>⠀<p>
 </div>
-
-
----
 
 
 <div align="center">
