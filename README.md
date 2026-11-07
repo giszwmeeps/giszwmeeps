@@ -49,8 +49,8 @@ yea.. ok bayayaye
       <p>⠀<p>
 <p><samp>usually in yeosin skin or afk/offtab</samp></p>  
     
-<p><samp>i often cuddle everyone i see open for
-  c+h</samp></p>
+<p>i often cuddle everyone i see open for
+  c+h</p>
 <p>
     <p>⠀<p>
 <div align=>
