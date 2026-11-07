@@ -26,7 +26,7 @@ yea.. ok bayayaye
 
 <div align="center">
 
-  i am a [fujoshi-fudanshi](https://en.wikipedia.org/wiki/Boys%27_love_fandom) ( ◡̀  ̫ ◡́) ✧
+⠀i am a [fujoshi-fudanshi](https://en.wikipedia.org/wiki/Boys%27_love_fandom) ( ◡̀  ̫ ◡́) ✧
 </div>
 
 <div align="center">
@@ -47,7 +47,7 @@ yea.. ok bayayaye
     <p>
 <h2>︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
       <p>⠀<p>
-<p><samp>usually in yeosin skin or afk/offtab</samp></p>  
+<p>usually in yeosin skin or afk/offtab</p>  
     
 <p>i often cuddle everyone i see open for
   c+h</p>
@@ -56,13 +56,13 @@ yea.. ok bayayaye
 <div align=>
 <h2>︵︵︵︵︵︵︵︵︵︵︵︵</h2>
       <p>⠀<p>
-  <p><samp>OME object of my eye</samp></p>
+  <p>OME object of my eye</p>
 </div>
-  <p><samp>PAW paws across the world</samp></p>
-  <p><samp>PON gachapon</samp></p>
-  <p><samp>PLSH plushkinz</samp></p>
-  <p><samp>BDD bunny's dream deception</samp></p>
-   <p><samp>HM : SSC DSS TWINKLES AG-NS</samp></p>
+  <p>PAW paws across the world</p>
+  <p>>PON gachapon</p>
+  <p>PLSH plushkinz</p>
+  <p>BDD bunny's dream deception</p>
+  <p>HM : SSC DSS TWINKLES AG-NS</p>
    <p>⠀<p>
 </div>
 
