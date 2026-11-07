@@ -27,18 +27,10 @@ yea.. ok bayayaye
 
 <div align="center">
   <details close>
-    <summary>⠀ friends </summary>
+    <summary>⠀ tomodachi </summary>
     <p>
 
-[yeosin](https://github.com/yourpulchritude) my no 1 
-
-[@sunstardiamond](https://github.com/SunstarDiamond) coe my goat!
-
-special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https://github.com/ld3Ipanicc)
-
-[angel](https://github.com/angel0fsloth) and [nick](https://github.com/muttk1n)  
-
-[skyyeeee](https://github.com/witherhalo) explodes
+[yeosin](https://github.com/yourpulchritude) , [@sunstardiamond](https://github.com/SunstarDiamond) , [angel](https://github.com/angel0fsloth) , [nick](https://github.com/muttk1n) , [witherhalo](https://github.com/witherhalo)
     <p>⠀<p>
     
   </details>
@@ -53,7 +45,8 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
       <p>⠀<p>
 <p><samp>usually in yeosin skin or afk/offtab</samp></p>  
     
-<p><samp>i often cuddle everyone i see open for c+h</samp></p>
+<p><samp>i often cuddle everyone i see open for
+  c+h</samp></p>
 <p>
     <p>⠀<p>
 <div align=>
