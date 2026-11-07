@@ -80,14 +80,4 @@ special mentions! : [@vhsluv](https://github.com/vhsluv) , [@ld3Ipanicc](https:/
 
 
 
----
 
-c+h always encouraged in ponytown unless dni is mentioned
-
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31oeikastuxuududf7dmxtptptte&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oeikastuxuududf7dmxtptptte&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
-  </a>
-</p>
-
----
