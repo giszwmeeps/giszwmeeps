@@ -24,6 +24,10 @@ wip github
   
 yea.. ok bayayaye  
 
+<div align="center">
+
+i am a [fujoshi-fudanshi](https://en.wikipedia.org/wiki/Boys%27_love_fandom) ( ◡̀  ̫ ◡́) ✧
+</div>
 
 <div align="center">
   <details close>
