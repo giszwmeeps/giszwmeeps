@@ -15,12 +15,13 @@
 
   
 haiyo ^_^    
-mainly known as Yeosin or gis;meep in regis&internet 
+mainly known mainly as Yeosin or gis;meep in the internet 
 you can call me gis or yeo  
 meep is my sona's name  
-yea,,  
-oh my discord is also meepstaracc.io  
-wip github  
+my pupsona's name is gipp! gip for short LOL  
+yaa,,  
+oh also my discord is meepstaracc.io  
+wip/lazy github  
   
 yea.. ok bayayaye  
 
