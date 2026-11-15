@@ -48,8 +48,7 @@ yea.. ok bayayaye
     <p>
 <h2>︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
       <p>⠀<p>
-<p>usually in yeosin skin or afk/offtab</p>  
-    
+<p>usually afk/offtab or have chat off.</p>  
 <p>i often cuddle everyone i see open for
   c+h</p>
 <p>
