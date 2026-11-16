@@ -36,7 +36,6 @@ yea.. ok bayayaye
     <p>
 
 [yourpulchritude](https://github.com/yourpulchritude) , [sunstardiamond](https://github.com/SunstarDiamond) , [angel0fsloth](https://github.com/angel0fsloth) , [muttk1n](https://github.com/muttk1n) , [witherhalo](https://github.com/witherhalo)
-lmk if you want to be mentioned
     <p>⠀<p>
     
   </details>
