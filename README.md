@@ -16,7 +16,7 @@
   
 haiyo ^_^    
 mainly known mainly as Yeosin or gis;meep in the internet  
-you can call me gis or yeo  
+you can call me gis, gipp, or yeo  
 meep is my sona's name  
 my pupsona's name is gipp! gip for short LOL  
 yaa,,  
