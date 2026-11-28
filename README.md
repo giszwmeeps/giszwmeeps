@@ -58,11 +58,9 @@ yea.. ok bayayaye
       <p>⠀<p>
   <p>OME object of my eye</p>
 </div>
-  <p>PAW paws across the world</p>
-  <p>>PON gachapon</p>
-  <p>PLSH plushkinz</p>
-  <p>BDD bunny's dream deception</p>
-  <p>HM : SSC DSS TWINKLES AG-NS</p>
+  <p>[PAW](https://github.com/pawsacrosstheworld) paws across the world</p>
+  <p>>[PON](https://github.com/gachaponscout) gachapon</p>
+  <p>HM : SSC DSS TWINKLES [AG-NS](https://github.com/AG-NS)</p>
    <p>⠀<p>
 </div>
 
