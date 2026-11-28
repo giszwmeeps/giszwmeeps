@@ -35,7 +35,7 @@ yea.. ok bayayaye
     <summary>⠀ tomodachi </summary>
     <p>
 
-[yourpulchritude](https://github.com/yourpulchritude) , [sunstardiamond](https://github.com/SunstarDiamond) , [angel0fsloth](https://github.com/angel0fsloth) , [muttk1n](https://github.com/muttk1n) , [witherhalo](https://github.com/witherhalo) , [pwppy](https://github.com/pwppy) , [artistleafribbon](https://github.com/ArtistsLeafRibbon)
+[yourpulchritude](https://github.com/yourpulchritude) , [sunstardiamond](https://github.com/SunstarDiamond) , [angel0fsloth](https://github.com/angel0fsloth) , [muttk1n](https://github.com/muttk1n) , [witherhalo](https://github.com/witherhalo) , [pwppy](https://github.com/pwppy) , [artistleafribbon](https://github.com/ArtistsLeafRibbon) , [skylaryeon](https://github.com/skylaryeon) , [77crescentmoon](https://github.com/77crescentmoon)
     <p>⠀<p>
     
   </details>
