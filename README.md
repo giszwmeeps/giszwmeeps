@@ -58,8 +58,8 @@ yea.. ok bayayaye
       <p>⠀<p>
   <p>OME object of my eye</p>
 </div>
-  <p>[PAW](https://github.com/pawsacrosstheworld) paws across the world</p>
-  <p>>[PON](https://github.com/gachaponscout) gachapon</p>
+  <p> PAW paws across the world</p>
+  <p> PON gachapon</p>
   <p>HM : SSC DSS TWINKLES [AG-NS](https://github.com/AG-NS)</p>
    <p>⠀<p>
 </div>
